@@ -1,1 +1,0 @@
-# Gym-demo-fitness-cult-
